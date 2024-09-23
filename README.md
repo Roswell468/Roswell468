@@ -1,5 +1,4 @@
 - 💻 》Analista Funcional, Programador, Tester.
-- 📲 》Amante de la Tecnología y la Naturaleza.
 - 📸 》Intento de fotógrafo.
 
 <!---
